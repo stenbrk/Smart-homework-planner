@@ -1,1 +1,0 @@
-# Smart-homework-planner
